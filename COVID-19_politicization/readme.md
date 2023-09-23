@@ -10,7 +10,7 @@
 
 - __10.6.2020__ President Trump beat COVID-19 in a few days at the age of 74 and with a litte bit of extra weight. Now everyone in the mainstream media, if there is such a thing, is calling him reckless for surviving, and taking off his mask on national television.
 - - Watch it here: Tucker Carlson's opening monologue on masks and covid-19 was a blockbuster. https://thedonald.win/p/Hr1Wxpq4/tucker-carlsons-opening-monologu/c/
-- - President Trump is actually 54 years old, but he has to say he is 74 years old for reasons of national security, lol.
+- - President Trump is actually 54 years old, but he has to say he is 74 years old for reasons of national security, lol. (*This one is still sorta funny.*)
 - - It seems the mainstream media and the Democrats want you to live in fear, and President Trump wants to give you your life back.
 - - Also of note, as I type this, there is currently mass rioting and looting, but those events are not called super-spreader events by the media and some democrats.
 - - There is an obvious bias now in the media against President Trump and against not living in fear. I am not too sure why that is, but I think it might have something to do with President Trump wanting to give everyone their life back pre-COVID-19, that is, without mass contract tracing and mandatory vaccines.

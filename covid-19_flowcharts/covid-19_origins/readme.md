@@ -2,9 +2,9 @@
 
 > looks like they are narrowing down the origins
 
-- China Stands Accused of Manufacturing the COVID-19 Virus https://www.thegatewaypundit.com/2020/08/china-stands-accused-manufacturing-covid-19-virus/
 
-(*I could believe that headline. Their behavior since the beginning of the pandemic was indicative of them believing they had the upperhand. The entire thing seems personal as well. I think they really did want to stick it to America and the world with their little virus. Maybe they even wanted to make the Americans beg for their help.*)
+- (*Interesting headline. Seems believable.*) China Stands Accused of Manufacturing the COVID-19 Virus https://www.thegatewaypundit.com/2020/08/china-stands-accused-manufacturing-covid-19-virus/
+
 
 #### random thoughts related to COVID-19 origins
 

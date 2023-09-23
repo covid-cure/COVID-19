@@ -53,7 +53,7 @@ I still haven't decided what aspect of the Coronavirus could be a smokescreen to
 > This is not good. I had my doubts about Xi's identity when he went into hiding during the initial stages of the pandemic in China. I also thought President Trump and President Xi were cool (as cool as foreign relations let you be anyways).
 
 - "I had a great relationship with President Xi. I like him, but I don’t feel the same way now.” @realDonaldTrump said his relationship with #XiJinping has frayed in the wake of the #CCPVirus pandemic and that he has not spoken to Xi in a long time. https://twitter.com/news_ntd/status/1293390503292084225
-
+- President Xi Jinping appears to have baited and played with President Trump, so that Xi's candidate and personal asset, Joe Biden, can win the White House in 2020. 
 
 #### Alternative Scenario
 

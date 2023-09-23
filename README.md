@@ -1,4 +1,6 @@
-### Hi! My COVID-19 Stuff! 👋
+# Hi! My COVID-19 Stuff! 👋
+
+## Data is in the process of being restored. Some links may be broken.
 
 <!--
 **covid-cure/covid-cure** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

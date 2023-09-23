@@ -40,6 +40,7 @@ By now, it should be plainly obvious that all medical data and DNA data, particu
 #### The Big Questions
 
 - Why would China risk so much over the Coronavirus? It seems as if they were acting very confidently in the beginning. Did the climax not happen in America because of President Trump's leadership? Right now, it looks like President Trump threw a major wrench in China's plan, whatever that plan was.
+- Answer to the big question: China's personal asset named Joe Biden was going to win at all costs in 2020. This is why China risked COVID-19. There's still other issues, however. There's the Putin factor. 
 
 - What scientific project or research is China working on that it would go to great lengths to keep it a secret, even ruining diplomatic and economic relationships in the process? 
 

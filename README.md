@@ -25,4 +25,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: I'm looking to do a break down of H1N1 and other things just to see what can be learned from them.
 - :earth_americas::astonished: I guess with COVID-19, some people initially thought it was the end of the world. It's never the end of the world (well, it's never the end of America).
 - :upside_down_face:  Pandemics are avoidable for the most part. They are really a problem and need to be solved. (*I think I may be attracted to problems to try to solve them. Maybe I am, right? :heart:*) 
-- :joy: I assume the "powers-that-be" thought the world would accept COVID-19 as just another pandemic. 
+- :joy: I assume "the powers that be" thought the world would accept COVID-19 as just another pandemic. 
